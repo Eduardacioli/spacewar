@@ -134,3 +134,15 @@
 132. Caso você compre um Space Lanche Feliz na SpaceDonald's, você ganhará uma miniatura do do Chewbacca.
 133. Se a palavra Whyegdhhwclnvnpvei for falada de tras para frente, o jogo termina.
 134. Siga para Kashyyyk, retire Chewbacca e Mestre Yoda da invasão do exército clone comandado pelo Sith Temer.
+134. Se seus amigos mafiarem com você , escolha o número deles da chamada
+135. Se o Galactus destruir a sua nave, volte para a dimensão gama.
+136. Snipers em Marte são permitidos.
+137. Se o Thanos aparecer com a manopla, segurem o Petter Quill.
+138. Se o inimigo receber um ataque por trás, então o dano será multiplicado por quatro.
+139. Caso você tente conviver em sociedade e batalhar ao mesmo tempo, morrerá.
+140. Quando você conseguir 100 pontos de lataria, sua nave ganha um boost de energia que permite que você vá até uma fase bônus que possui o item monitoria louca.
+141. Se entrar no buraco negro delta, você será levado para o país das Maravilhas e encontrará o coelho branco que te dará ajuda.
+142. Woody pertence a Andy, não tente rouba-lo, pois criatividade vale mais.
+143. Se a cauda do charmander apagar então ele morre.
+144. Se Voldmort aparecer, chame Harry Potter.
+145. Faça um rosto sorrindo na praia de marte.
